@@ -9,5 +9,4 @@
 
 65162110011-2 พนธกร ก้อง 2
 
-
-https://www.canva.com/design/DAGyjaErD_A/HmqQmpfY0qR9p4bWzJSXoQ/edit?utm_content=DAGyjaErD_A&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton
+https://www.canva.com/design/DAGyjaErD_A/q2_s2OTr1IQ5c91VfyFdCg/view?utm_content=DAGyjaErD_A&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hadf2a23898
